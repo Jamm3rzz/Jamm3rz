@@ -1,7 +1,7 @@
 # James Harrison
 `Python programmer & data lover`
  
-  Hi I’m James, I'm a nineteen year old sproutling programmer & i'm aiming to develop my skills in programming & data science. I am ready to work on any project presented to me. However I often am studying or giving myself problems to solve (Thats 90% of the fun no?)
+  Hi I’m James, I'm a twenty yr programmer aiming to develop my skills in programming & data science. I am ready to work on any project presented to me. However I often am studying or giving myself problems to solve (Thats 90% of the fun no?)
 
 🦭 - The things I hold close in this world consist of seals, programming, jjk, & of course my lovely girlfriend 
 
